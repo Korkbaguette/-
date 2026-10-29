@@ -11,6 +11,7 @@
 **Before you interact!!**
 
 ╰┈➤ *"I may come off as closed off, but I don't mean no harm! If you want to interact/dm with me, you can go ahead in discord! But remember, I'm mostly inactive due to my schoolworks :D so yeah!!
+(If you also want to sign my atabook, go ahead! :D)
 
 
 ── ⋆⋅☆⋅⋆ ── ── ⋆⋅☆⋅⋆ ── ── ⋆⋅☆⋅⋆ ──
